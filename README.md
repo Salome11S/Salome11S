@@ -1,3 +1,12 @@
+# Salome Valentina Salazar Uribe
+
+## Cualidades de Salome
+1. Me gusta escuchar múscica
+2. Me gustan los gatos
+
+![Mitologia Griega](https://i.pinimg.com/564x/bd/7c/d7/bd7cd709d64be77c7e5a94b88677d5c3.jpg)
+
+
 ### Hi there 👋
 
 <!--

@@ -4,7 +4,7 @@
 1. Me gusta escuchar múscica
 2. Me gustan los gatos
 
-![Mitologia Griega](https://i.pinimg.com/564x/bd/7c/d7/bd7cd709d64be77c7e5a94b88677d5c3.jpg)
+![salo](https://user-images.githubusercontent.com/100799019/166822092-0f8f9ff1-c991-4858-b02c-39bbd326bdf8.png)
 
 
 ### Hi there 👋

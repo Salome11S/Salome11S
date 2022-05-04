@@ -5,6 +5,8 @@
 2. Me gustan los gatos
 
 ![salo](https://user-images.githubusercontent.com/100799019/166822092-0f8f9ff1-c991-4858-b02c-39bbd326bdf8.png)
+![yop](https://user-images.githubusercontent.com/100799019/166822420-e4feef33-d476-4cff-80b8-30883ee83fc5.png)
+
 
 
 ### Hi there 👋
